@@ -1,3 +1,3 @@
 ## Idea
 
-[https://www.uidesigndaily.com/]
+https://www.uidesigndaily.com/
